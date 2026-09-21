@@ -122,4 +122,4 @@ Watch Both Streams Here:
 - [Skylanders Spyro's Adventure with Remastered Graphics](https://www.youtube.com/live/cGGtU1aZwJc?si=-GAp8JpALTObQ8IP)
 - [Skylanders Giants with Remastered Graphics](https://www.youtube.com/live/UuzO6OxHiiE?si=NY4ydFXaLrMVEAHX)
 
-**Created by *Xales* for the Skylanders Community**
+**Created by *synOptix* for the Skylanders Community**
